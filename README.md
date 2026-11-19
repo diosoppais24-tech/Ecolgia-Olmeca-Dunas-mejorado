@@ -1,1 +1,0 @@
-# Ecolgia-santa-marta-mejorado
